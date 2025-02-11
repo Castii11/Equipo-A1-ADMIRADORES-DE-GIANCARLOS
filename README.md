@@ -1,2 +1,2 @@
-# Equipo-A1-ADMIRADORES-DE-GIANCARLOS
+# Equipo-A1
 Admiramos al dios maya ancestuoso.
